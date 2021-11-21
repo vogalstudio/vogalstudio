@@ -1,1 +1,1 @@
-👋 Hi, we're Vogal, a Web & Design agency 
+👋 Hi, we're Vogal, a Digital agency 
