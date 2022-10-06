@@ -1,1 +1,1 @@
-👋 Hi, we're Vogal, a Digital agency 
+👋 Hi, we're Vogal, a Branding studio crafting bright brands in a changing world.
